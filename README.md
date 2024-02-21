@@ -1,4 +1,4 @@
-# 👋 Hello! Welcome to my Github profile.
+# 👋 Hello! Welcome to my World.
 ## My name is Augusto and my nickname is "August0n3"!
 
 Em busca de conhecimento e desafios!  
